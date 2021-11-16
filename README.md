@@ -7,7 +7,7 @@ C#,Python
 
 ## 📬 Socials
 
-- Twitter: [- Twitter: [https://twitter.com/TLeekasemsup][1]
+- Twitter: [https://twitter.com/TLeekasemsup][1]
 
 ## &#x1f4c8; My GitHub Stats
 
